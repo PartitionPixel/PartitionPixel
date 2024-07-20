@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-I'm Partition Pixel and I'm a big fan of cryptocurrencies, NAS/Servers, Unraid, 3D Printing, programming, etc...
+I'm Partition Pixel and I'm a big fan of cryptocurrencies, NAS/Servers, Unraid, 3D Printing, programming, gaming etc...
 
 I'm trying to be more active in the communities of my passions. One of my goal is to start giving back to these communities and hopefully someday be a big part of them !
 
